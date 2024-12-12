@@ -37,7 +37,7 @@ Welcome to my GitHub profile! I'm a seasoned engineering executive with a strong
 🤝 Let's Connect
 ----------------
 
-I'm always open to discussing new projects, ideas, or opportunities. Feel free to reach out via email or connect with me on [LinkedIn](https://www.linkedin.com/in/evanson-biwott).
+I'm always open to discussing new projects, ideas, or opportunities. Feel free to reach out via email [evansonbiwot@gmail.com](evansonbiwot@gmail.com) or connect with me on [LinkedIn](https://www.linkedin.com/in/evanson-biwott).
 
 
 
